@@ -1,2 +1,0 @@
-# beguilingcross.github.io
-SaveTheDate
